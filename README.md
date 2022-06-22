@@ -1,5 +1,3 @@
-# Why to avoid TVape, Zeuz, Utillian, and anything related - Deleted Reddit Post
-
 From an now unknown user on [/r/Vaporents](https://reddit.com/r/vaporents), who shortly after deleted their post, originally made ob October 26, 2021.
 
 ## Original Reddit post text copied below + links to Wayback Machine
@@ -52,3 +50,15 @@ Mods, if you care for verification please ask and I can verify my identity/work
 Anyone I've worked or the PR agent who may be reading this; TVape, Kevin, Josh, etc - thanks for the freelance employment and general treatment - I wish you all the best! Please keep ethical business practice at the top of priorities for the sake of the customer.
 
 /monologue
+
+## Navigation
+
+### [Return to BeyondCombustion.net](https://www.beyondcombustion.net/)
+
+### [Jump to 'The Book' and The 'List'](https://www.beyondcombustion.net/The-Book-fka-The-Consensus/)
+
+### [Review the Glossary](https://BeyondCombustion.net/Glossary/)
+
+### [Go to The Beginners Guide](https://BeyondCombustion.net/Beginners-Start-Here/)
+
+### [Visit BeyondCombustion's Businesses Repository](https://BeyondCombustion.net/Businesses/)
