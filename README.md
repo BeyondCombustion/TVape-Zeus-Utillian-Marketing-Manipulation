@@ -1,6 +1,12 @@
-From an now unknown user on [/r/Vaporents](https://reddit.com/r/vaporents), who shortly after deleted their post, originally made ob October 26, 2021.
+#### Want to contribute to BeyondCombustion?
 
-## Original Reddit post text copied below + links to Wayback Machine
+[Click here for info on how you can help contribute to BeyondCombustion.net!](https://BeyondCombustion.net/How-To-Contribute/)
+
+---
+
+#### From an now unknown user on [/r/Vaporents](https://reddit.com/r/vaporents), who shortly after deleted their post, originally made ob October 26, 2021.
+
+# Original Reddit post text copied below + links to Wayback Machine
 
 #### [Original Post Link](https://www.reddit.com/r/vaporents/comments/qgenyx/the_truth_about_utillian_zeus_and_tvape/)
 
@@ -8,6 +14,9 @@ From an now unknown user on [/r/Vaporents](https://reddit.com/r/vaporents), who 
 
 #### [Wayback Machine Archive #2 - After Original Post Deleted But Containing Follow Up Comments](https://web.archive.org/web/20220128205547/https://www.reddit.com/r/vaporents/comments/qgenyx/the_truth_about_utillian_zeus_and_tvape/)
 
+---
+
+# The Original Reddit Post
 
 I know this is kinda shooting myself in the foot in regards to working in this industry with these companies since I may get blacklisted as a result, but whatever, I have my own little shitty site for my income now and I'm ready to break off of this type of work :)
 
@@ -50,6 +59,8 @@ Mods, if you care for verification please ask and I can verify my identity/work
 Anyone I've worked or the PR agent who may be reading this; TVape, Kevin, Josh, etc - thanks for the freelance employment and general treatment - I wish you all the best! Please keep ethical business practice at the top of priorities for the sake of the customer.
 
 /monologue
+
+---
 
 ## Navigation
 
